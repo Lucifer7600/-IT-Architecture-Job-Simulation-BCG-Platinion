@@ -235,8 +235,8 @@ Completed: February 2026
 
 If you're passionate about enterprise modernization, digital strategy, or architecture-led transformation — let's connect.
 
-LinkedIn: https://www.linkedin.com/in/YOUR_LINK  
-GitHub: https://github.com/YOUR_GITHUB  
+LinkedIn: linkedin.com/in/abhishek-lunagariya-a78507194
+GitHub: github.com/Lucifer7600 
 
 ---
 
